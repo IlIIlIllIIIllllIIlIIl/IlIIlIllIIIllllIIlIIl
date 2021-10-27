@@ -1,2 +1,1 @@
-2 high school students 
-hate internet blocking systems
+2 high school students who hate internet blocking systems
